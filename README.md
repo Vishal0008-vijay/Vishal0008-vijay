@@ -16,7 +16,7 @@ When I'm not coding, you'll probably find me playing games, listening to music, 
 
 - 🎮 I love playing video games.
 - 💻 I enjoy building websites and bringing ideas to life.
-- 🏋️ Gym are part of my routine.
+- 🏋️ Gym is part of my routine.
 - 🎬 I enjoy video editing and creative projects.
 
 Always learning, experimenting, and building something new!
